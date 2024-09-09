@@ -37,7 +37,8 @@ En utilisant ce site, vous acceptez de respecter les présentes conditions gén�
 
 **10. Contact :**
 Pour toute question relative aux conditions d'utilisation, vous pouvez nous contacter via notre page de contact, par Discord, ou par email à phoenixmodzcompany@gmail.com
-.
+Rejoins le serveur aussi
+https://discord.gg/jU6CK3TjF7
 
 ---
 
